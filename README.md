@@ -1,2 +1,2 @@
-# 2202875 - GAme Design and Production
+# 2202875 - Game Design and Production
  
